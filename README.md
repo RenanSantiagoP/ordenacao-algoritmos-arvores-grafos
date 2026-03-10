@@ -4,6 +4,6 @@ Renan Santiago
 Marcos Gabriel 
 Lucas Miguel
 Mateus Rodrigues
-Sophia
+Sophia Barroso
 Eva Júlia
 Felipe Augusto
